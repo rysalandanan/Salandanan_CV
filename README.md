@@ -1,8 +1,8 @@
-                                                                                                       Raphael Salandanan
+Raphael Salandanan
                                                                                                        
-                                                                                                       Tanauan City, Batangas
+Tanauan City, Batangas
                                                                                                        
-                                                                                                       raphaelyapsalandanan@gmail.com
+raphaelyapsalandanan@gmail.com
 
 
 PROFILE
