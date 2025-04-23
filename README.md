@@ -7,6 +7,7 @@ EXPERIENCE
 __________________________________________________________________________________________________________________________________________________________________________________
 
 Blamorama Games | Mar 2025 – Present
+
 Luleå, Sweden
 
 Game Programmer
@@ -15,6 +16,7 @@ Game Programmer
   * Assisted in Launching Bumi Cosmic Colors on the Google Play Store
 
 Blamorama Games | Sep 2024 – Feb 2025
+
 Luleå, Sweden
 
 Game Programming Intern 
