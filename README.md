@@ -1,6 +1,8 @@
-Raphael Salandanan
-Tanauan City, Batangas
-raphaelyapsalandanan@gmail.com
+                                                                                                       Raphael Salandanan
+                                                                                                       
+                                                                                                       Tanauan City, Batangas
+                                                                                                       
+                                                                                                       raphaelyapsalandanan@gmail.com
 
 
 PROFILE
@@ -43,4 +45,4 @@ ________________________________________________________________________________
 
 PORTFOLIO
 __________________________________________________________________________________________________________________________________________________________________________________
-My Itch.io page.
+https://rysalandanan.itch.io/
